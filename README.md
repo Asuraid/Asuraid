@@ -19,6 +19,16 @@ Here are some ideas to get you started:
 
 ###
 
-<p align="center">name's **Aid**, and welcome to my profile! i'm using this as a hub for PonyTown info cause I can't<br>link my profile within the site, or it goes to my art twit.</p>
+<p align="center">Name's <b>Aid</b> (21+ | she/her), and welcome to my profile! I'm using this as a hub for PonyTown<br>info. Artist & game designer, mostly here to chill and blab about Genshin and OCs. I am a<br>yumeshipper, and my OC Sylvie kisses Zhongli 🌿🔶</p>
+
+###
+
+<div align="center">
+  <img height="19" src="https://i.imgur.com/PbzTRNE.gif"  />
+</div>
+
+###
+
+<p align="center"><b>Links:</b> carrd | strawpage | art twitter | art tumblr | toyhouse</p>
 
 ###
