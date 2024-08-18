@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 
 ###
 
-<p align="center">Name's <b>Aid</b> (21+ | she/her), and welcome to my profile! I'm using this as a hub for PonyTown<br>info. Artist & game designer, mostly here to chill and blab about Genshin and OCs. I am a<br>yumeshipper, and my OC Sylvie kisses Zhongli 🌿🔶</p>
+<p align="center" max-width="300">Name's <b>Aid</b> (21+ | she/her), and welcome to my profile! I'm using this as a hub for PonyTown info. Artist & game designer, mostly here to chill and blab about Genshin and OCs. I am a yumeshipper, and my OC Sylvie kisses Zhongli. :) 🌿🔶</p>
 
 ###
 
