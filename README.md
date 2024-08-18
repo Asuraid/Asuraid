@@ -1,5 +1,3 @@
-## Hi there 👋
-
 <!--
 **Asuraid/Asuraid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -15,4 +13,12 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-I am learning how to use this just for a PonyTown landing page since I can't link my normal carrd here. 🪴
+<div align="center">
+  <img height="200" src="https://i.imgur.com/4S7JCnx.gif"  />
+</div>
+
+###
+
+<p align="center">name's **Aid**, and welcome to my profile! i'm using this as a hub for PonyTown info cause I can't<br>link my profile within the site, or it goes to my art twit.</p>
+
+###
