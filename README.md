@@ -23,6 +23,8 @@ Here are some ideas to get you started:
 
 <p align="center"><b>For PonyTown Info:</b> I am usually always open to <b>cuddles and hiding</b> for people if they need it, though I am a bit shy with talking so I don't <i>usually</i> initiate convos. Kiss emotes are <b>okay</b> with me, I just do not return them if you're not friends—as for friend reqs, I will tend to ignore them if we haven't chatted to some degree!!! I also don't really roleplay, sorry; I'll do lighthearted banter as my skins, but it's really not my interest here (I'm a tumblr RP girly).</p>
 
+<p align="center">If I'm 🌙 I'm <i>usually</i> still around (or genuinely AFK if I'm using the sleep emote), you can whisp me to get my attention if I don't poof; if I'm ⛔ it usually means I'm in the middle of something or very low energy, so I may only just respond with emotes and nothing else. I normally hang out in the Genshin area or the camp!</p>
+
 ###
 
 <div align="center">
