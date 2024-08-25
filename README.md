@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 -->
 
 <div align="center">
-  <img height="180" src="https://i.imgur.com/4S7JCnx.gif"  />
+  <a href="https://x.com/h0bblyw0bbly"><img height="180" src="https://i.imgur.com/U3taRts.png"  /></a> <img height="180" src="https://i.imgur.com/4S7JCnx.gif"  /> <a href="https://x.com/h0bblyw0bbly"><img height="180" src="https://i.imgur.com/qRunLq5.png"  /></a>
 </div>
 
 ###
@@ -41,8 +41,6 @@ Here are some ideas to get you started:
 
 <p align="center"><b>Links:</b><br><a href="https://aid.uwu.ai/">carrd</a> • <a href="https://asuraid.straw.page/">strawpage</a> • <a href="https://x.com/Asuraid">art twitter</a> • <a href="https://toyhou.se/Hideki">toyhouse</a></p>
 
-###
-
 <div align="center">
-  <img height="200" src="https://i.imgur.com/hJvKHBw.png"  />
+  <img height="15" src="https://i.imgur.com/YndATXT.png"  />
 </div>
