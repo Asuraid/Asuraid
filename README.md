@@ -21,9 +21,18 @@ Here are some ideas to get you started:
 
 <p align="left">Name's <b>Aid</b> (21+ • she/her • INFP); artist & game designer, mostly here to chill with friends, casually chat, and blab about Genshin and OCs. I am a yumeshipper, and my <a href="https://toyhou.se/10313327.-genshin-impact-sylvie">OC Sylvie</a> (they/them) kisses and holds hands with Zhongli (<a href="https://toyhou.se/10313327.sylvie/14798357.zhongvie">🌿🔶/Zhongvie</a>); I will blab for hours if you ask me about them or Zhongli!!! I also <b><i>ADORE</i></b> other people's OC/Canons and/or self-ships, though I am non-sharing, so I won't discuss other ships with Zhongli outside of my own or just tune out of convo and come back later.</p>
 
-<p align="left"><b>For PonyTown Info:</b> I am always open to <b>cuddles and hiding</b> for people if they need it, though I am a bit shy with talking so I don't <i>usually</i> initiate convos/new topics. Kiss emotes are <b>okay</b> with me, I just do not return them if you're not friends—as for friend reqs, I will tend to ignore them if we haven't chatted to some degree!!! I also don't really roleplay, sorry; I'll do lighthearted banter as my skins, but it's really not my interest here (I'm a tumblr RP girly).</p>
+<p><b>Interests:</b> genshin impact / star rail / ace attorney / omniscent reader's viewpoint / fire emblem / pokemon / elsword (don't ask me abt gameplay I'll rant)</p>
 
-<p align="left">If I'm 🌙 I'm <i>usually</i> still around, just not as chatty (or genuinely AFK if I'm using the sleep emote) so you can whisp me to get my attention if I don't poof; if I'm ⛔ it means I'm in the middle of something so I can't really talk, or very low energy for socializing, so I may only just respond with emotes and nothing else. I normally hang out in the Genshin area or the campfire!</p>
+<p align="left"><b>For PonyTown Info:</b></p>
+<ul>
+  <li>I am always open to <b>cuddles and hiding</b> for people if they need it, though I am a bit shy with talking so I don't <i>usually</i> initiate convos/new topics.</li> 
+  <li>Kiss emotes are <b>okay</b> with me, I just do not return them if you're not friends.</li>
+  <li>As for friend reqs, I will tend to ignore them if we haven't chatted to some degree!!! </li>
+  <li>I also don't really roleplay, sorry; I'll do lighthearted banter as my skins, but it's really not my interest here (I'm a tumblr RP girly).</li>
+  <li>If I'm 🌙 I'm <i>usually</i> still around, just not as chatty (or genuinely AFK if I'm using the sleep emote) so you can whisp me to get my attention if I don't poof.</li>
+  <li>If I'm ⛔ it means I'm in the middle of something so I can't really talk, or very low energy for socializing, so I may only just respond with emotes and nothing else.</li>
+  <li>I normally hang out in the Genshin area or the campfire!</li>
+</ul>
 
 ###
 
