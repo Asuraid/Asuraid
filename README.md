@@ -23,15 +23,14 @@ Here are some ideas to get you started:
 
 <p><b>Interests:</b> genshin impact / star rail / ace attorney / omniscent reader's viewpoint / fire emblem / pokemon / elsword (don't ask me abt gameplay I'll rant)</p>
 
-<p align="left"><b>For PonyTown Info:</b></p>
+<p align="left"><b>For PonyTown Info/BYI:</b></p>
 <ul>
   <li>I am always open to <b>cuddles and hiding</b> for people if they need it, though I am a bit shy with talking so I don't <i>usually</i> initiate convos/new topics.</li> 
-  <li>Kiss emotes are <b>okay</b> with me, I just do not return them if you're not friends.</li>
-  <li>As for friend reqs, I will tend to ignore them if we haven't chatted to some degree!!! </li>
+  <li>Kiss emotes are <b>okay</b> with me, I just do not return them if you're not friends—as for friend reqs, I will tend to ignore them if we haven't chatted to some degree!!!</li>
   <li>I also don't really roleplay, sorry; I'll do lighthearted banter as my skins, but it's really not my interest here (I'm a tumblr RP girly).</li>
-  <li>If I'm 🌙 I'm <i>usually</i> still around, just not as chatty (or genuinely AFK if I'm using the sleep emote) so you can whisp me to get my attention if I don't poof.</li>
-  <li>If I'm ⛔ it means I'm in the middle of something so I can't really talk, or very low energy for socializing, so I may only just respond with emotes and nothing else.</li>
+  <li>If I'm 🌙 I'm <i>usually</i> still around, just not as chatty (or genuinely AFK if I'm using the sleep emote) so you can whisp me to get my attention if I don't poof. If I'm ⛔ it means I'm in the middle of something so I can't really talk, or very low energy for socializing, so I may only just respond with emotes and nothing else.</li>
   <li>I normally hang out in the Genshin area or the campfire!</li>
+  <li>No real DNI, I'll just hide/block if you're being weird to be fair.</li>
 </ul>
 
 ###
