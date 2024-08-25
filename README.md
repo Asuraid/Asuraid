@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 -->
 
 <div align="center">
-  <img height="200" src="https://i.imgur.com/4S7JCnx.gif"  />
+  <img height="180" src="https://i.imgur.com/4S7JCnx.gif"  />
 </div>
 
 ###
