@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 
 ###
 
-<p align="left">Name's <b>Aid</b> though I'm known as Asuraid online; mostly here to chill with friends, casually chat, and blab about Genshin and OCs. I am a yumeshipper, and my <a href="https://toyhou.se/10313327.-genshin-impact-sylvie">OC Sylvie</a> (they/she) kisses and holds hands with <a href="https://toyhou.se/10313327.sylvie/14798357.zhongvie">Zhongli</a>; I will blab for hours if you ask me about them or Zhongli!!! I also <b><i>ADORE</i></b> other people's OC/Canons and/or self-ships, though I am non-sharing. 🥲</p>
+<p align="left">Name's <b>Aid</b> though I'm known as Asuraid online; mostly here to chill with friends, casually chat, and blab about Genshin and OCs. I am a yumeshipper, and my <a href="https://toyhou.se/10313327.-genshin-impact-sylvie">OC Sylvie</a> (they/she) kisses and holds hands with <a href="https://toyhou.se/10313327.sylvie/14798357.zhongvie">Zhongli</a>; I will blab for hours if you ask me about them or Zhongli!!! I also <b><i>ADORE</i></b> other people's OC/Canons and/or self-ships, though I am non-sharing with Zhongli, sorry. 🥲</p>
 
 <blockquote><b>Interests:</b> genshin impact • star rail • ace attorney • omniscent reader's viewpoint • fire emblem • pokemon • elsword (don't ask me abt gameplay I'll rant) • MXTX's danmei works • FFXIV • hades (the game) • stardew valley • FAITH the unholy trinity</blockquote>
 
