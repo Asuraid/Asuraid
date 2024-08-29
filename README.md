@@ -25,7 +25,7 @@ Here are some ideas to get you started:
 
 <p align="left"><b>For PonyTown Info/BYI:</b></p>
 <ul>
-  <li>No real DNI, I'll just hide/block if you're being weird. Would prefer not talking about other Zhongli ships though, and <i>please</i> don't be weird about interactions if I'm on my Zhongli skin (especially as Childe or Xiao, I <i>do not</i> like those ships).</li>
+  <li>No real DNI, I'll just hide/block if you're being weird. Would prefer not talking about other Zhongli ships though, and <i>please</i> don't be weird about interactions if I'm on my Zhongli skin (especially as Childe or Xiao, I <i>do not</i> like those ships).<br><sup>Not a DNI if you like other ships with him, just please be aware I'll avoid talking about them or move on with the conversation to a different topic.</sup></li>
   <li>I am a bit shy with talking so I don't <i>usually</i> initiate convos/new topics, minus maybe giving a friendly poke if we share interests. If you're on a GI OC skin ... I'll shyly sit close. I don't bite so please feel free to interact!!</li> 
   <li>Kiss emotes are <i>okay</i> with me, I just do not return them if you're not friends—as for friend reqs, I will tend to ignore them if we haven't chatted to some degree!!!</li>
   <li>I don't really roleplay, sorry; I'll do lighthearted banter as my skins with friends, but it's really not my interest here.</li>
