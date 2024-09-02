@@ -32,7 +32,7 @@ Here are some ideas to get you started:
   <li>Kiss/nuzzle emotes are <i>a-okay</i> with me, I love being platonically affectionate!! Also not much for ships, so cuds and kisses are fully platonic (unless it's certain friends on a Zhongli skin then Sylvie <i>is</i> kissing them).</li>
   <li>As for friend reqs, I will tend to ignore them if we haven't chatted to some degree!!! You can ask if we can be friends, but I usually like having people I've talked to a bit.</li>
   <li>I don't really roleplay, sorry; I'll do lighthearted banter as my skins with friends, but it's really not my interest here.</li>
-  <li>If I'm 🌙 I'm <i>usually</i> still around, just not as chatty (or genuinely AFK if I'm using the sleep emote) so you can whisp me to get my attention if I don't poof. If I'm ⛔ it means I'm offtab, in the middle of something/a convo, or very low energy for socializing, so I may only just respond with emotes and nothing else.</li>
+  <li>If I'm 🌙 I'm <i>usually</i> still around, just not as chatty (or genuinely AFK if I'm using the sleep emote) so you can whisp me to get my attention if I don't poof. If I'm ⛔ it means I'm offtab, in the middle of something/a convo, or very low energy for socializing, so I may only just respond with emotes, or with a delay.</li>
 </ul>
 
 ###
