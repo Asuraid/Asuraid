@@ -41,7 +41,7 @@ Here are some ideas to get you started:
   <img height="15" src="https://i.imgur.com/YndATXT.png"  />
 </div>
 
-<p align="center"><b>Links:</b><br><a href="https://aid.uwu.ai/">carrd</a> • <a href="https://asuraid.straw.page/">strawpage</a> • <a href="https://x.com/Asuraid">art twitter</a> • <a href="https://toyhou.se/Hideki">toyhouse</a></p>
+<p align="center"><b>Links:</b><br><a href="https://aid.uwu.ai/">carrd</a> • <a href="https://asuraid.straw.page/">strawpage</a> • <a href="https://x.com/Asuraid">art twitter</a> • <a href="https://toyhou.se/Hideki">toyhouse</a> • <a href="https://asuraid.atabook.org/">atabook</a></p>
 
 <div align="center">
   <img height="15" src="https://i.imgur.com/YndATXT.png"  />
