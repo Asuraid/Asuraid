@@ -33,7 +33,7 @@ Here are some ideas to get you started:
   <li>I am a bit shy with talking so I don't <i>usually</i> initiate convos/new topics, minus maybe giving a friendly poke if we share interests. If you're on a GI OC skin ... I'll shyly sit close. I don't bite so please feel free to interact!!</li> 
   <li>Kiss/nuzzle emotes are <i>a-okay</i> with me, I love being platonically affectionate!! Also not much for ships, so cuds and kisses are fully platonic (unless it's certain friends on a Zhongli skin then Sylvie <i>is</i> kissing them).</li>
   <li>As for friend reqs, I will tend to ignore them if we haven't chatted to some degree!!! You can ask if we can be friends, but I usually like having people I've talked to a bit. I normally don't send them myself too often. ;_;</li>
-  <li>I don't really roleplay, sorry; I'll do lighthearted banter as my skins with friends, but it's really not my interest here.</li>
+  <li>I don't really roleplay, sorry; I'll do lighthearted banter as my skins with friends, but it's really not my interest here as such I'll ignore RP attempts.</li>
 </ul>
 
 ###
