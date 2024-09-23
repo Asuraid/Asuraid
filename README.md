@@ -34,6 +34,7 @@ Here are some ideas to get you started:
   <li>As for friend reqs, I will tend to ignore them if we haven't chatted to some degree!!! You can ask if we can be friends, but I usually like having people I've talked to a bit. I normally don't send them myself too often. ;_;</li>
   <li>I don't roleplay; I'll do lighthearted banter as my skins with friends, but it's really not my interest here.</li>
   <li>I also don't really hand out my discord unless we've known each other for a long while; you're more likely to get a hold of me in PT or on my socials listed here.</li>
+  <li>I sometimes do make kms/exploding jokes but usually only if I'm around friends in convos.</li>
 </ul>
 
 ###
