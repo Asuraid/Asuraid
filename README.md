@@ -21,6 +21,8 @@ Here are some ideas to get you started:
 
 <p align="left">Name's <b>Aid</b> though I'm known as Asuraid online; mostly here to chill with friends, casually chat, and blab about Genshin and OCs. I am a <i>yumeshipper</i>, and my <a href="https://toyhou.se/10313327.-genshin-impact-sylvie">OC Sylvie</a> (they/she) kisses and holds hands with <a href="https://toyhou.se/10313327.sylvie/14798357.zhongvie">Zhongli</a>; I will blab for hours if you ask me about them or Zhongli!!! I also <b><i>ADORE</i></b> other people's OC/Canons and/or self-ships, though I am non-sharing with Zhongli, sorry. 🥲</p>
 
+<p><b>Please know if you're on a Zhongli skin, I am not here to do romantic interactions, in case it makes you uncomfortable;</b> even if my name on Sylvie's skin is very 'Zhongli's wife' energy, I only do romantic cuddles with two friend's skins of Zhongli (tho if u wanna give smooches, I won't say no).</p>
+
 <p>Check out my rentry for more info on me, BYIs, and on my blorbo as well. :)</p>
 
 <blockquote><b>Interests:</b> genshin impact • star rail • ace attorney • omniscent reader's viewpoint • fire emblem • pokemon • elsword (don't ask me abt gameplay I'll rant) • MXTX's danmei works • FFXIV • hades (the game) • stardew valley • FAITH • code vein • PJO • my adventures with superman • madoka magica</blockquote>
