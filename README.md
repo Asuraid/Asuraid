@@ -38,3 +38,7 @@ Here are some ideas to get you started:
 <div align="center">
   <img height="15" src="https://i.imgur.com/YndATXT.png"  /><img height="15" src="https://i.imgur.com/YndATXT.png"  />
 </div>
+
+<div align="center">
+  <a href="https://x.com/thepeelucof87">© avatar</a>
+</div>
