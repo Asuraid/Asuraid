@@ -23,7 +23,7 @@ Here are some ideas to get you started:
 
 <p><b>Please know if you're on a Zhongli skin that I am not here to do romantic/ship interactions, in case it makes you uncomfortable;</b> even if my name on some of Sylvie's skins is very 'Zhongli's wife' energy, I only do shippy cuddles with two friend's skins of Zhongli (tho if u wanna give smooches, I won't say no). Sylvie is just a comfort skin I'm on normally :]</p>
 
-<p>Check out my rentry for more info on me, BYIs, and on my blorbo as well. :)</p>
+<p>Check out my rentry for more info on me, BYIs, and on my blorbo as well (as it's PonyTown specific), though my carrd also has more general info + socials. :)</p>
 
 <blockquote><b>Interests:</b> genshin impact • star rail • ace attorney • omniscent reader's viewpoint • fire emblem • pokemon • elsword (don't ask me abt gameplay I'll rant) • MXTX's danmei works • FFXIV • hades (the game) • stardew valley • FAITH • code vein • PJO • my adventures with superman • madoka magica</blockquote>
 
