@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 
 ###
 
-<p align="center"><b><i>Please check out my <a href="https://rentry.org/asuraid">rentry</a> for full PonyTown info!!</i></b></p>
+<p align="center"><b><i>Please check out my <a href="https://rentry.org/asuraid">rentry</a> for full PonyTown info!!</i></b><br/><i>(or you can check out my <a href="https://zhongvie.neocities.org/">neocities</a> for me in general)</i></p>
 
 <p align="left">Name's <b>Aid</b> though I'm known as Asuraid online; mostly here to chill with friends, casually chat, and blab about Genshin and OCs. I love friendly cuddling in Ponytown!!! All my smooches are also fully platonic 🫡 I am a <i>yumeshipper</i>, and my <a href="https://toyhou.se/10313327.-genshin-impact-sylvie">OC Sylvie</a> (they/she) kisses and holds hands with <a href="https://toyhou.se/10313327.sylvie/14798357.zhongvie">Zhongli</a>; I will blab for hours if you ask me about them or Zhongli!!! I also <b><i>ADORE</i></b> other people's OC/Canons and/or self-ships, though I am non-sharing with Zhongli, sorry. 🥲<br><sub>(non-sharing just means I don't personally discuss ships including him w/other people and would prefer to avoid those convos)</sub></p>
 
